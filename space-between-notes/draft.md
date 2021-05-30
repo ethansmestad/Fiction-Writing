@@ -56,7 +56,7 @@ Look to the page that lets you see the words. THe words that rest on the page.
 
  But to her dying, shock didn’t allow me to say how I felt, because I felt nothing for a long time, and often still do.
 
- So there in the room, with the static of machines, and two unhappy families, and people keeping busy to themselves, and a whole city outside, all the noise. Think of the city and the noise it makes with it’s very presence. Even if there were no people in it, no electricity running, by extents dead, it’s physical presence still has a sound, every window and every building carves the air like a colossal ocarina. But then add all the other mayhem, and within the skulls of ten million people \(on average\) add to that the fuzz of them plugged into phones, shielded by airpods, and like a russian nest egg, still louder than all that around them, the thoughts.
+ So there in the room, with the static of machines, and two unhappy families, and people keeping busy to themselves, and a whole city outside, all the noise. Think of the city and the noise it makes with it’s very presence. Even if there were no people in it, no electricity running, by extents dead, it’s physical presence still has a sound, every window and every building carves the air like a colossal ocarina. But then add all the other mayhem, and within the skulls of ten million people \(on average\) add to that the fuzz of them plugged into phones, shielded by airpods, and like a russian doll, still louder than all that around them, the thoughts.
 
  I got up and left his room and walked around seeking quiet, because I thought I needed to hear myself think. I thought I needed to hear myself think, the tricky, self-serving bastards, those thoughts.
 
@@ -64,7 +64,7 @@ And where is my head? Lost in a tune. A melody I know deep within the treerings 
 
 Since Mom died, the only direction was forward, away, from that moment. Life before her passing fell behind a curtain. Again, it partially happened, and the rest I wanted it to. It felt powerful to agree with fate, allowed me to feel like I was somehow above feeling like someone in the middle of drowning. But then the things pop up.
 
-And in this moment, wandering the hospital award, towards the elevator, not knowing where I was going, this melody from behind the veil has me ensnared, and I need to find it again, it needs me to find it. THe imperative is subconscious and unquestionable. My sanity is tied to rediscovering this melody. 
+And in this moment, wandering the hospital ward, towards the elevator, not knowing where I was going, this melody from behind the veil has me ensnared, and I need to find it again, it needs me to find it. THe imperative is subconscious and unquestionable. My sanity is tied to rediscovering this melody. 
 
 I’m in a memory whether I like it or not. This one is of when Mom was here, getting her surgery, and we all waited in the area for families. It had a few amusements, and smart phones weren’t that smart enough to keep me totally numb yet, but maybe even then, I just knew I had ot get it out some other way. There’s a piano in a waiting room in this place. 
 
@@ -96,7 +96,7 @@ And then, how can I tell you? That in that Silence, the Silence which was you, M
 
 Then I remember the song was called Clair De Lune by Claude Debussy, and Debussy is famous for saying that music is the space between notes. 
 
-And I want to tell you that Silence is all of our mother. Silence is eternal, indestructible, outside of time and the very fabric with which time itself is woven. That my parents, who I still ache for with every breath I draw, they are that Silence, and even when they bod bodies to love me with, even then it was Silence that gave birth to me and raised me and took me to football practice and dance and music lessons and cancelled our snowboarding trip when I skipped school. So when I miss you, Mom and Dad, the best way to hear you is listen to Silence and remember.
+And I want to tell you that Silence is all of our mother. Silence is eternal, indestructible, outside of time and the very fabric with which time itself is woven. That my parents, who I still ache for with every breath I draw, they are that Silence, and even when they had bodies to love me with, even then it was Silence that gave birth to me and raised me and took me to football practice and dance and music lessons and cancelled our snowboarding trip when I skipped school. So when I miss you, Mom and Dad, the best way to hear you is listen to Silence and remember.
 
 I’ll go back to the room, and the next year will play out until dad dies, though I stick around for hte end this time. And my life moves on, and yes, I move further na further away from you both, and yet, when I remember Silence, I remember also that I come closer to you, the more deeply I listen. And I’ll forget the silence again and get caught up in the cacophony of this city and this mad planet I love with my own fierce madness. But then I’ll remember, not out of my own device, but because Silence finds us when we need it, always.   
 
