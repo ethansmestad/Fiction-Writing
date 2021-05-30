@@ -2,11 +2,11 @@
 
 My Alien Utopia
 
- At the end of our conversation, you asked me what I would want Alien Contact to be like, and what My Utopia would look like. You weren’t interested in what I thought it _would_ be, but what I _wanted_ it to be. We agreed to discuss it when we met up again, at some undetermined, but certain date. It felt so certain as we were leaving the bar.
+At the end of our conversation, you asked me what I would want Alien Contact to be like, and what My Utopia would look like. You weren’t interested in what I thought it _would_ be, but what I _wanted_ it to be. We agreed to discuss it when we met up again, at some undetermined, but certain date. It felt so certain as we were leaving the bar.
 
  I had a general list in my head of vague ideas like wealth being eliminated, free energy, food abundance, environmental rehabilitation, planetary awakening, etcetera…. and I was bored trying to imagine it. I couldn’t actually picture anything. Walking home that night, I scared myself realizing I was the exact opposite of excited by the possibility of a final and complete peace among nations, bored trying to imagine a life like _Star Trek_ with warp speed and hot alien sex.
 
- You’ll probably never read any of this. It doesn't matter. I want to say it all anyway. That’s how good I feel now.
+You’ll probably never read any of this. It doesn't matter. I want to say it all anyway. That’s how good I feel now.
 
  I’ve often wondered how much you knew when we spoke, whether you knew everything. It seems like far more than coincidence at this point, but I still really don’t know. I wonder if you knew how excited I was the whole time we were talking. I hope you were, too. It’d make me happy to know that.
 
