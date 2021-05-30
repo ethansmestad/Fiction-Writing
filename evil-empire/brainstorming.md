@@ -297,5 +297,11 @@ Rules of the Nation of Imagi: Nothing dies, things only become more forgotten, m
 
 Of course, the rebellion is well under way, and many of the imaginary characters and forces move discretely between worlds and states in Disney's Empire. 
 
-So the Disney Princesses, in their contemporary state, wait for these abandoned Disney worlds to be left unattended, silently monitoring, then do the extraction. I think maybe what woudl work best would be for the girls to be acting undercover, and they come alive and suddenly invite  Marion into a shadowy escape from his kingdom, and the way they must travel is through imaginative means that are outside the disney boundaries, methods that rely on beign transgressive and unsavory, to get where they need to go. Something like traveling through an interdimensional vaginal canal to arrive into the narrow allies of the imagined New York, and there they can sit down and tell their stories and invite Marion into the resistence. 
+So the Disney Princesses, in their contemporary state, wait for these abandoned Disney worlds to be left unattended, silently monitoring, then do the extraction. I think maybe what woudl work best would be for the girls to be acting undercover, and they come alive and suddenly invite  Marion into a shadowy escape from his kingdom, and the way they must travel is through imaginative means that are outside the disney boundaries, methods that rely on beign transgressive and unsavory, to get where they need to go. Something like traveling through an interdimensional vaginal canal to arrive into the narrow allies of the imagined New York, and there they can sit down and tell their stories and invite Marion into the resistence.
+
+
+
+5/20/21
+
+I rushed to the end there a bit, but it was a good time. I feel like I know what needs to be said in this first installement. And It'll get cleaned up, better order, less like a hodgepodge of ideas and exposition. But It'll be great. 
 
