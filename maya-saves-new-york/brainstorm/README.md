@@ -16,3 +16,17 @@ But maybe the city literally crumbling apart is a little much for suspension of 
 
 I think this can work the same way Notre Dame worked, all of the character's lives, all their place in history, all come together in a single day, a single moment. Yeah, I don't think some of the craziness form the fiirst brain storms will work though. I'm not afraid to be alittle over the top and dramatic, but I think there's also a way in which the craziness of the day can be believed as beign very close to home, close to reality. But I don't think Maria has a classic moment with a James Bond villain. Especially if I'm now gearing it towards imagining all the worst outcomes and defeats despite all the battles and struggles. What does that look like in her world? It looks like people out onthe streets, really ready for violence, to tear things down, the police and military getting ready to shoot people down. Then the storm breaks, which delays the battle, scatters it, and causes the whole situation to disperse into chaos. There's immediate government order for people to all get home, at the same time that there are mass arrests, and people sheltering from the storm, power going out, the storm clearing and the battle returning, and honestly i imagine most people giving up. I might not figure it out until I'm in the writing. But I think generally,  I'm going to be less "in" the scenes, not that I'm telling everything as exposition, but that it's that different more omniscient style. It's literally just me telling this story about something that happened, and everything and everyone involved in it, ever, all these thigns cumulating t oa play.
 
+6/3/21 --- I found it really helpful to do Evil Empire broken up to into sections, so what would my sections be? I was using time stamps to give a sense of progress to the day, which I think might still be a helpful tool, what is it in my head at this point?
+
+There's beginning of the day, establishing the characters and their situations: The massacre of homeless down at the park, the flight up to the hospital, the interaction in the hospital the layout of the plan.
+
+There's the early part of the morning, made of the twins beginning to gather the troops, Maria organizing to keep the vote going, and Maya with her uncle.
+
+There's the beginning of the storm sweeping across the city, forcing people into shelter, the kids fighting through that obstacle.
+
+Then, it's really getting things to a cataclysmic point. The city is in the middle of a quasi-revolution, with the military roaming through the city to clamp down on people, and for Maria it's the point of defeat, that her aims to save the city are falling apart, and the kids facing obstacle after obstacle so that they're arriving at the park with a rag-tag assembly of things, and so many people despondent and fearing for their lives. At this point is also Maya's prison break.
+
+THen it's the play happening. And the play leading to the party, and everyone dispersing, and the conclusion of the day. 
+
+So this could really be broken up into 4 sections. I'll have to cut a lot of initial plot points, or portray it in a condensed way. I want to give the impression of the dizziness induced by the scope of all things colliding, and each section also still needs to have a thorough amount of flashback and backtracking to tell everyone's story, to show how they got here. How's the twin's journey going to be revised? Without needing to belabor and over provide details that are unnecessary. 
+
