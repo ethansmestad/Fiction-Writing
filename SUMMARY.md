@@ -20,6 +20,7 @@
   * [Brainstorm](space-between-notes/brainstorm.md)
 * [Maya Saves New York](maya-saves-new-york/README.md)
   * [Drafting](maya-saves-new-york/drafting/README.md)
+    * [Draft 3 \(6/7/21\)](maya-saves-new-york/drafting/draft-3-6-7-21.md)
     * [Atlantis](maya-saves-new-york/drafting/atlantis.md)
     * [The Storm](maya-saves-new-york/drafting/the-storm.md)
     * [Maya's Play](maya-saves-new-york/drafting/mayas-play.md)
