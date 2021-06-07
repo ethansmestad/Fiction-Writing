@@ -20,5 +20,29 @@ Yeah the Christopher Hitchens thing is a nice angle. Because this "reality" of t
 
 --Getting wise to the party that's not changing and not going anywhere, on every level, decicing to leave. ANd this authentic choice on Ezra choice is what makes them who they are, no longer with the insecuirty that they;re missing something and everyone's laughing at them. 
 
-They're at a party to begin with because of pressure from the partner to show up.There might as well be drugs involved. I don't want it to be reduced to a drug trip, I want it to feel mysterious as it unfolds, benign at the beginning. Yup, parties, we know what that's like. But how to take all these abstractions and weave them into real events over the course of a party? espesically if this is -- lost the train of thought. BUt I feel like I'm gettign closer to it. It still starts as a ergular saturday night, with a couple going to a party, and one of them really isn't itn oit and is expecitng  it to go bad, and through some kind of sequence of events that's somewhat-- it has to start off normal enough, normal stuff that happens at parties. You talk to people you've never met, most of the time people are drinking or takign drugs. Espescially at tthe beginning its like a little 
+They're at a party to begin with because of pressure from the partner to show up.There might as well be drugs involved. I don't want it to be reduced to a drug trip, I want it to feel mysterious as it unfolds, benign at the beginning. Yup, parties, we know what that's like. But how to take all these abstractions and weave them into real events over the course of a party? espesically if this is -- lost the train of thought. BUt I feel like I'm gettign closer to it. It still starts as a ergular saturday night, with a couple going to a party, and one of them really isn't itn oit and is expecitng  it to go bad, and through some kind of sequence of events that's somewhat-- it has to start off normal enough, normal stuff that happens at parties. You talk to people you've never met, most of the time people are drinking or takign drugs. Espescially at tthe beginning its like a little party, when it's mad awkward, whos afriad of virginia woolf energy, like dear God this social nicety is unbearable. Take the time to let it be the worst party in the world, in a particular way that people will recognize.
+
+1\)A profile of the city, getting ready for another saturday night 
+
+2\) the couple, Ezra & Bea, talking about a party before they arrive, the clear problem.
+
+3\)the party of five, super awkward and uncomfortable, all the wost aspects of socializing
+
+4\)People arriving, the subtle and swift transformation into a party
+
+5\) sliding into the surreal.  Basic party events
+
+6\) conversations about life, interspersed with the stupid minutae and drama of lives, the common thngs that are talked baout at parties, but the thigns said somehow makign sense and pointing to something they normally don't.
+
+7\) The history of the world through the lens of celebration, hinted at, then lived through.
+
+8\) Scenes from history that paint the picture, rendered as surrealistic happenings in the party. \*aztec sacrifices, pretty enligh tea parties, same princple.
+
+9\) A whole mundane life lived, tracking all the "parties that someon fades in and out of.
+
+9\) Going deeper into the party, leaving, the later parts of the evening, new encounters, things going south. 
+
+10\) the revolution happening, where veryone realizes it's a party and acts as such, and nothing changes, because that's what it already was. And this is the way the party is.
+
+11\) Ezra's been at the party a long time, and starts to think he's ready to leave the party, brings their partner home.
 
