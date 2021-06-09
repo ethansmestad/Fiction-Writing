@@ -1,8 +1,80 @@
 ---
 description: >-
-  For drafting the set-up and introduction of all things relevant to the action
-  of the story
+  1) Jordan in the Park, the ride up to the Hospital 2) The scene in Sloan
+  Kettering.
 ---
 
 # Atlantis
+
+7:12 AM
+
+Jordan Holmes has just gotten the frame of his iPhone 12 camera perfectly in place on the tripod. The sky has something split about it: the sun is rising in the east, as it does, but down south, by the shore of New Jersey, the unseasonal hurricane is slouching slowly towards the city. The rising sun won't fight back the storm clouds. Where the light of the day is trying to be born, it is orange and mauve , a whispy mix of gold among pale clouds. Lower along the frame is the horizon of the Atlantic, the cargo ships that stroll by at all hours, and the Statue of Liberty, small, but present. Jordan notices the unusual machines crossing the harbor: the helicopters which aren't news helicopters, the ships which aren't commercial. Military has been discretely buzzing across the city for days now, their open presence only more flagrant.
+
+Against this backdrop, low in the frame, and low in power among these Greek gods and furies higher in the frame, there are the people of Battery Park. They are all living in tents, if they're fortunate, and many around the bottom of the frame are still wrapped in  their blankets and sleeping bags. Though it's unseasonably warm and humid for early November, there's always a biting breeze here at Battery Park. To someone unfamiliar with the park, they would assume this was footage of a refugee camp. What's in frame is only a fraction of the whole park which has been turned into camp for the people who have nowhere else to go.
+
+There's a hole in the middle of the frame, a space where no one sleeps, where the ground is clear, waiting for someone to speak up and say something. Jordan gives the cue, the old thespian walks slow and steady to her mark. She takes in the sights around her, not with any pity or sadness, but with an eye that is wise, old, and weary of Madness. She addresses the camera:
+
+_Atlantis! Where have you been hiding? Deep, under the rock and waters, deep in the before, long, long ago, most ancient of ancestors. So long ago you sank, but didn’t vanish: All the more living as a spirit, a story, shapeless as the wind, singing from the hollows of skulls, producing vibrations in the hearts of us all! Your name your seed, scattered in all directions, ‘til it took root once again. No, you are not dead, you are here! Here! I stand upon you, and like Hermes Trismegistus, I warn of the inversion: Never a legacy, but a prophecy! Risen from the ocean, to sink once more again! Proud, brave, ambitious, what glory can be lifted on as high as you? It pales in your shadow. You give height new meaning! Depths, new gravity! Angelic, demonic, roots in hell, branches in heaven! Endlessly, we speak your glory; mind manifest, magic of man. Pinnacle, Telos, the oak of our Humanity, Acorn Animus. Convergence, center of cycles, cyclops eye in a cyclone. Ha! I don’t trade in doom, I trade in sooth. The mighty fall, right as rain, tower of babel, Atlantis! I am you. I am your mongrel, your sovereign, your mad king! What beauty we’ve known here. Inexhaustible--yet it must end. Cities of a thousand years. No such time any more. Learn to swim! A man of faith moves like a swimmer or a dancer, not so for sinners. Babble of Cassandra. No need here. Learn to swim, Old Atlantis, go merry back to your home. Sure you shall rise again after a good long slumber.”_
+
+The actress takes two breaths, the first in character, the second as the releasing of the spirit, the return of her normal persona. Those awake in the camp who paid attention clapped for her, and she smiled like she hadn't in a long time, twisting bashfully like she might've when she was forty years younger. She looks to Jordan off camera and says, "That felt good for me, what did you think? I could do another, if you wanted."
+
+Jordan has just realized the chopping wind could be a problem, though hopefully her thespian-trained voice projection should compensate well enough for the poor sound quality. He looks at his watch and tells her to go for it again just for safety, and as she begins the speech again, someone across the way shouts “shut the fuck up, we’re still sleeping!” The old thespian slaps her hands over her mouth, shouts back her apologies, and looks at the director, who assures her what they got is great. It has to be. 
+
+ Justin breaks down the tripod which he can get about halfway into his backpack. The thespian steps over to him cautiously. “Now, if you ever need any more kind of work like that I’d love to be involved. You got my money now?”
+
+ “Yeah, of course.” Justin pulls a twenty from his wallet and hands it to her. She looks surprised in the bad way.
+
+ “C’mon, honey, I’m a trained actor. I was doing August Wilson at the Manhattan Theater Club in 2017.”
+
+ “And I’m a broke teenage filmmaker.” In between packing and checking his belongings, he flickers his eyes up to meet her and mumbles, “sorry.”
+
+ The actor, whose name is Tabitha, or “Tabby” Smith, sighs, and can’t help but let a sadness sink into her face. “It is what it is. Anything helps. It felt good performing like that again, really. Makes me feel good making people in this camp smile like that. Maybe I’ll keep doing it, get some people together to perform. That’d be nice.”
+
+ “Yeah, it would.”
+
+Tabby is crying now. “I just never thought it could come to this, you know? Never thought it could get this bad. I can’t even save what you just gave me, you know why? Because I know a mother here who needs baby formula and diapers. Twenty dollars goes a way longer way for her right now than it does for me trying to get an apartment. Twenty dollars won’t make a difference for me, for most folks, really. Best it can do is help someone I know. And that’s good.”
+
+ Jordan is listening, but also scouting about, because he has an appointment to keep. He looks at her one more time. “Thanks again, you did great. I gotta go.”
+
+ “If you got more work in the future, you know where to find me.” Tabby wipes her eyes and manages a smile. Jordan nods and turns North, carefully making his way between the tents that take up the park.
+
+Jordan Holmes has been coming to this park for the last week or two, knowing there was something about the place and the moment of time that spoke loudly by its very presence. The speech was one penned by Maya, not tied to any other part of their project, but he thought it was an interesting speech. She'd described to him an image she had of some Tom o' Bedlam of NYC, delivering a prologue to some kind of narrative of the city they were still in the midst of constructing. Jordan had taken it upon himself to do the scouting, and while meeting different people across the Battery Park camp, Tabby Smith was the one most eager for a chance to perform to any capacity. He would take the clip he'd just recorded up to Sloan Kettering, and show it to Maya, so at least they could say they'd brought one dream of hers to life.
+
+As Jordan was making his way between the tents of the camp, floodlights suddenly came on from the outskirts, from NYPD. On all sides they'd surrounded the camp, armed to the teeth in riot gear. The voice announced through a loudspeaker that the camp was officially declared unlawful, and everyone had 30 minutes to disperse or else be arrested. Everyone sleeping was now awake. 
+
+It didn't take long for some people to start shouting back at the police, and even with everyone else fighitng back the few puffing their chest to the cops, in short order the scene broke into chaos. People scattered and ran as tear gas was thrown in and cops with batons and shields charged in. The camp had many families, but it also was dealing with the people who'd been homeless much longer, with drug addictions and mental health issues, and it was most likely one of these people who'd had a gun and fired it at cops, which then turned into a full on ballistic response from the police, who were already blinded in their own gas.
+
+Somehow, Jordan had found the resolve in his himself to press record on his phone, and flying on sheer impulse, scattered up into a nearby tree to film what he could. He held the camera steady on a gimble, oddly calm as the chaos played out. This was until a rubber bullet whizzed passed his head and he fell out of the tree hard, luckily onto the loam of the large concrete planter the tree was nestled in. He waited not a second longer to scramble among the fog and find his escape. The police maintained somewhat of a perimeter, but he saw the gap and went for it, and ran up Broadway for his life.
+
+Hopping the turnstyle at the Wall Street station, he fitted his keys between his knuckles and kept both eyes alert. He didn't fear the overwhelming amount of homeless and mentally unstable people that had flooded the subway system in recent months, but after seeing someone get stabbed completely unprovoked, he stayed highly alert. The real fear was the equally overwhelming police presence, meant to make subway riders feel safe, though more often were arresting and brutalizing random people in order to justify their presence.
+
+Over the year, Jordan had watched the city come apart at the hinges. Violence and crime skyrocketed in the summer due to record heatwaves that took out power and forced many people on their last threads into states of desperation. The easiest solution was more armed police. A financial bubble popped, and whatever the reasons were didn't make a difference or matter to majority of people who were most affected by it. What it meant was mass evictions, businesses closing left and right, slim to no job opportunities, and camps springing up everywhere. 
+
+Jordan got off the subway at 86th street, emerging aorund Hunter College to see the street filled with students. He didn't have to hear to know they were talking about storming City Hall and implementing the communist revolutions they'd heard about in all their classes and wanted to experience for themselves, finally. When he looked above, the sky was already grey, the hot wind blowing, and he looked up at the tall facade of the Sloan Kettering building, and walked in through the main entrance.
+
+When he reached Maya's room, her Uncle Eddie  was sitting in his spot with that nervous smile in his eyes. Jordan's twin sister, Kendra, was already there, glaring at him.
+
+"J, what's good?" This came from Maya. Maya looked she hadn't slept, though the circles under her eyes had been there for a little while. She looked like a skeleton, but there was enough flesh in her cheeks, that the smile was the same as the first time Jordan met Maya. They fist-bumped as well. Jordan moved quickly into sharing the news:
+
+"I got the prologue. Wind might make the sound a little rachet, though."
+
+Maya waved a hand to dismiss the concern. "That's dope," she said with a rasp. 
+
+"Were you still there when police rolled in?" This came from Kendra, bouncing between her feet as if about to reach out and maul her brother.
+
+"I got out as it was going down," He pulled out his phone to start showing Maya the footage of the police raid, before Kendra walked over and slapped the phone from his hands. 
+
+"You're lucky you're not fucking dead! No one needs to see that."
+
+"I was gonna show her the prologue," Jordan protested, before Maya threw up her weak and skinny hands again to call for peace, which neither of the siblings would deny her.
+
+"We gotta talk shop, guys. Might wanna sit down."  Maya shot a glance at her uncle Eddie, who squirmed in his seat, no more smile in his eye.
+
+"We gotta be quick. The future mayor is gonna be rolling through here soon, and she's gonna be coming with a vengeance." Maya laughed silently to herself. "I talked to my doctor about an hour ago. I'm stopping treatment." She watched her friends react the way she knew they would: Jordan remained like a statue, but Kendra jumped up about to start yelling, but Maya continued. "Nothing's gonna change that now. I'm done. And no one can stop it. I've got the legal right, not even future mayor can stop it, God help her. All I want is to see the play. And it's gotta happen today."
+
+"Mai, come on--
+
+"Ken, I love you, but I need you to shut up right now."
+
+Maya looked at Jordan. "Y'all have kept me breathing. I owe you everything. This is the last thing I'm ever gonna ask of you. I don't care if it's just the two of you and a puppet show."
 

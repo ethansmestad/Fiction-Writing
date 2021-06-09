@@ -27,6 +27,7 @@
     * [Draft 1 \(6/3/21\)](maya-saves-new-york/drafting/draft-1-6-3-21.md)
     * [Draft 2 \(6/4/21\)](maya-saves-new-york/drafting/draft-2-6-4-21.md)
   * [Brainstorm](maya-saves-new-york/brainstorm/README.md)
+    * [Story Outline 6/8/21](maya-saves-new-york/brainstorm/story-outline-6-8-21.md)
     * [Maya's Play](maya-saves-new-york/brainstorm/mayas-play.md)
 * [The Party](the-party/README.md)
   * [Brainstorming](the-party/brainstorming.md)
