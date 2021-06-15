@@ -1,3 +1,7 @@
+---
+description: '"The Cave"'
+---
+
 # Drafting
 
 When the girl ran her hand through a brook, the water was as warm as her skin, so it felt like a soothing nothing.
