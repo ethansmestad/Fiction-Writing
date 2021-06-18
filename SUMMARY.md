@@ -5,6 +5,7 @@
 * [Taru & The Mask](taru-and-the-mask/README.md)
   * [Drafting](taru-and-the-mask/drafting.md)
   * [Draft 2](taru-and-the-mask/draft-2.md)
+  * [Draft 3](taru-and-the-mask/draft-3.md)
   * [Brainstorming](taru-and-the-mask/brainstorming.md)
 * [The Nation of Imagi](evil-empire/README.md)
   * [Drafting](evil-empire/drafting/README.md)
