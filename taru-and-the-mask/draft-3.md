@@ -1,28 +1,54 @@
 # Draft 3
 
+## A Thesis Paper by Oliver Kerrigan 
+
 ## A Thesis Paper by Oliver Kerrigan
+
+The story of academia, along with every other artifact of human civilization, is a story of families, which is to say parents and children; Functional or Dysfunctional is just a matter of perspective. For example, the Thesis format is itself an artifact, a tradition, a rite of passage that places initiates into a canon, a world that through repetition throughout time has earned itself some transcendent authority in the eyes of the living who honor it. 
 
 _Abstract: Disillusioned son of canceled Harvard philosopher abandons academic career; submits memoir in place of thesis; presents myth of dubious origin which serves as allegory for modern intergenerational conflict and trauma._
 
+For example, it'd be fairly common to begin a paper with a quote of some authority of the field, some little snippet or axiom that it would then be my labor to reinforce, reinterpret, criticize, expand upon, and in some way react to it. To not quote relevant sources is a cardinal sin of academia. ~~\(Quote about quoting sources in academic papers~~\) 
+
 In the course of my studies, my aim has been to understand the dynamics of the intergenerational struggle seizing the world today, and ideally recommend solutions. My research has lead me through rabbit holes of History, Psychology, Sociology, Anthropology, Philosophy, Philology, Critical Theory; a cocktail of every single soft science we call The Humanities. 
+
+The point of a Thesis is to articulate the findings of study and research. My study and research has spanned History, Sociology, Anthropology, Archaeology, Philology, Psychology, Philosophy, Critical Theory, Cultural Studies... ~~If my liberal arts education was a kind of cocktail, it'd be a Long Island Iced Tea Fishbowl. And I am sick from it, ready to purge it all onto a page for you.~~
 
 Despite years of study and a lifetime lived in the Ivory Tower, I still watched as this battle between Boomers and Millennials carried on around me with no discernible progress or reconciliation. No matter what pet theory I formed, none of it ever proved actionable. It was only in the last month that I discovered an under-discussed piece of epic poetry, which the earliest Alexandrian scribes often attribute to the fabled Atlantis. Regardless of the definitive source of the text, the work, as I have interpreted it, has given me the insight I'd so desperately been seeking. Without it, I'd likely have written nothing. 
 
+Here's my Thesis: Everyone wants to me to say something about my dad. They either want me to defend him, or disavow him. My future career in any university was dependent on this choice. _Was_, because after submitting this whatever-it-is to the thesis board, to my blog, to everyone in my life who has been waiting to see this-- I'll be withdrawing from my studies and abandoning academia, to do I know not what.
+
 There's a few things I need to address straight out: Many people have been waiting to hear me speak my mind regarding my father, Dr. John Kerrigan. They want to know whether I stand behind him, or disavow and condemn him. I will address that. The fate of my career as an academic was dependent on my answer. _Was_, because with the submission of this paper, I've also since withdrawn from my master's program. It's hard to describe the sense of freedom this has given me, but I hope to make the reader understand over the course of this paper.
+
+This isn't to say I haven't learned anything, or don't have scholarly things to say. What it means is I no longer have to make this Thesis paper anything other than exactly what I want it to be, and the sense of freedom that has come from that, along with other things lately, things i'm feeling for the first time in my life. I have to say, there's nothing like it, and I"ll be talking about it as well as I can here. 
 
 ----------------
 
+I still find abstracts helpful, or TL;DR in modern parlance. So here's mine: In my studies and in my life, I've watched my generation abruptly awake from the dream of history into the nightmare of its lived reality. All role models and idols have proven false. Our reaction has been to dismantle all the systems and traditions passed down to us. We refuse to willingly repeat the sins of the past. Yet that's left us with no guidance for the future. In my generally fruitless studies, I did recover one obscure fragment of a myth ascribed by Alexandrian scholars to the fabled Atlantis.  Whatever the truh of this source is, I present the story here as a story that provides a parable about this war between generations and provides some insight to the youth of any generation trying to make sense of the history they ahve inherited. I know it's helped me find the freedom I feel now.
+
 I'll begin with saying that the only reason I got into a Graduate History Program at Harvard is because my father, John Kerrigan, is who he is. I was born in the academic world, most likely conceived in it, by my father and mother, who was his TA at the time. It was only in the most recent months of reconsidering and retracing my whole life that I was able to realize the timing of my birth and my parent's wedding, and the fact that I was an accident that forced two people's lives together that, as we know now, didn't belong together. Again, even the shady timing of my parents quick marriage and my birth soon after is probably not news to you. 
+
+## A Personal History
 
 Still, I was born and raised in a large place where my father seemed king of the Castle. I have early memories of him reading the tales and stories of King Arthur, and the next day, he would take me around campus on his shoulders, and to see the way everyone greeted him, I was convinced he was King Arthur, and Harvard was his Camelot. 
 
+Here I'm going to talk about my life being John Kerrigan's son.  Up until in my research, I discover this old myth:
+
 One of the many other things I've realized in retrospect is that my father's bedtime stories, which was basically the only time I saw him consistently most nights of my childhood, were methods of subtle evangelizing. As I understood it then, he knew everything about the world. I grew up hearing at least 30 versions of the Creation story, from all over the world, in every different niche, and when I grew up asking him which one was true, he would ask me, 'why not all of them?' and I'd say, 'because they don't make sense together,' and then he'd say, 'How odd! Maybe one day, you can solve the mystery, and then tell me!'
+
+## "Taru & The Mask"
 
 He was grooming me to be a philosopher, same as him. You all already know his work, and why it mattered, but what was interesting growing up in the house with him was seeing him react to the world changing first-hand. By the time I was entering college, the first Occupy Wall Street had just taken place, and he was down there to converse with organizers and Michael Moore and Cornel West and Slavoj Zizek, and there are famous photos of them all together planning the revolution.
 
+This is where I will share my verse translation of this old epic. 
+
 Often, I remember him putting down a journal, listening to the radio, rubbing his face gravely, holding his chin like a good philosopher does, and sayign something like, "the leftist movement in America is being stolen. They're splitting it up into politics of identity, instead of uniting around class consciousness."
 
+## Conclusion
+
 I went into classrooms in college and heard the early conversations among my generation that were being had, about racism and sexism and xenophobia and bigotry, and I parroted my dad's thoughts, with a mix of self-importance, superiority, and at the same time a tremendous pity that they didn't know what I knew, so that it was my job to remind them that the real focus was class warfare, and not these petty fights over race and sex and identity. I quickly found myself demonized in these conversations and written off as a white supremacist, and once someone has pegged you for a white supremacist, most people don't rescind their opinions. I thought the revolution was doomed if these ignorant people would exclude me based on the color of the my skin.
+
+This is where I'll offer my conclusion about what Taru's story tells me about thigns going on in the world, my own life.
 
 I shared my frustrations with my father and he agreed, and he became even more adamant in his outspoken views against the wrong way in which things were going. I watched him come home angrier and angrier every day, claiming that free speech was dying, fascism was slipping deeper into the minds of children every day, and free-thinking critics were being silenced, careers ruined left and right, and he assured us that they were coming for him too.
 
