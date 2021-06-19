@@ -32,7 +32,7 @@ What I present below is the myth which I discovered, along with its bearing onto
 
  It was at this juncture, that is, the juncture of despair where I cam upon a story in a strange old collection of myths. An ancient fairytale ascribed to Atlantean lore-- yes, ridiculous, for certain. The scholarly introduction stated that the tale had been adapted and readapted out of context through Greek and Latin, and versions of it popped up all around the mediterranean, even into Africa. BUt, accroding to this book, a few decades after Napoleon’s conquest in Egypte revived archaeology of the area, and earlier version of this story was found on heiroglyphic scrolls that dated it to 1500 BC.
 
- I’d never heard any version of it that sounded familiar before. It was about a boy named Taru, his father Todoton, and a magical mask with a life of its own. So the tale was called “Taru and the Mask.” I’ll reproduce it here, not just as an interesting piece of overlooked history, but as an old voice that feels familiar-- like your own echo returning to you millennials after you first spoke.
+ I’d never heard any version of it that sounded familiar before. It was about a boy named Taru, his father Todoton, and a magical mask with a life of its own. So the tale was called “Taru and the Mask.” I’ll reproduce it here, not just as an interesting piece of overlooked history, but as an old voice that feels familiar-- like your own echo returning to you millennia after you first spoke.
 
  TARU AND THE MASK
 
@@ -72,7 +72,7 @@ What I present below is the myth which I discovered, along with its bearing onto
 
  “I will stop this evil. I will go to the people, and I will give them truth!” And without a further thought, Taru returned to city, greeted by people who knew him as prince, and followed him as he lead them to the place form which the ruler speaks to the people.
 
- From that place, he told them the truth of the rulers: the evil, the lies that supported every good. Having told the people the truth of their rulers, they fell into despair just as he had. Brother turned against brother. With no noble thign to believe in, they fell into evil ways, seeing no reason not to, and before his eyes, the city fell apart. Todoton emerged from the chamber to see Atlantis in turmoil, still wearing Todoton, and cried, “O, my son, you have ended everything! For your insolence, there shall be no more future, but only doom!” And with that, Todoton slew himself. Amidst the havoc, Taru took the mask from his father’s face and once more fled the city.
+ From that place, he told them the truth of the rulers: the evil, the lies that supported every good. Having told the people the truth of their rulers, they fell into despair just as he had. Brother turned against brother. With no noble thing to believe in, they fell into evil ways, seeing no reason not to, and before his eyes, the city fell apart. Todoton emerged from the chamber to see Atlantis in turmoil, still wearing Todoton, and cried, “O, my son, you have ended everything! For your insolence, there shall be no more future, but only doom!” And with that, Todoton slew himself. Amidst the havoc, Taru took the mask from his father’s face and once more fled the city.
 
  Out in the wilds, he once more cursed the mask, saying to it, “It is you! You who have ended everything! You came from the Gods to make slaves of its kings, to condemn them to evil lives, and because I would not play your game, you have ruined everything!”
 
