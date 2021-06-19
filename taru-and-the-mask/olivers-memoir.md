@@ -1,0 +1,22 @@
+# Oliver's Memoir
+
+Everyone already knows, and I just want to say for the record: the only reason I got into the Graduate School of History at Harvard is because of my father. It was effectively guaranteed no matter what I did. I have lived at Harvard, surrounded by its campus my entire life. A few of the people meant to review my thesis have known me since I was born.
+
+My earliest memories of my father were his diligent and consistent lectures delivered at bedtime. He made a point of telling me every single creation story he came across, from every major civilization. By the time I was six years old, I had most of them memorized, and I'd developed a preference for the Native American ones that spoke of animals and mud on the back of turtles which were the most comforting images. The Egyptian ones with Osiris' phallus struck me as gross. At the time I could finally ask these questions, I related to my dad the sudden confusion at the fact that there so many versions of how the world was created, one of them had to be right and rest wrong. At which point he'd tell me the story of Charles Darwin and the modern sciences, and as even more mind-boggling those stories were, he always made the point of saying that these sciences explained things up to a point, but wouldn't make claims it couldn't prove and as it turned out, there was still many things It couldn't yet prove. And so, he got into the habit for a while of saying, "Think about it and get back to me when you figure out the answer to the mystery of life, I'm dying to know myself!" It was his version of a dad joke, which I got sick enough of that I stopped asking these questions for a while.
+
+Of course all of this was part of his evangelizing to turn me into a philosopher like himself. He, the famous  Synthesizer, in a world of specialists who worked mainly to take things apart to study in isolation, he was the one who brought the threads of so many schools and disciplines back together, to use as a tool of holistic thought, a way of think that could be applied to ethics, economics, legal matters, political strategy, war, and his mind was sought after by business tycoons and politicians and generals and everyone interested in power.
+
+I also remember him taking me on his shoulders around campus, all the people who smiled and waved at him, the whole sense of the school itself as a much larger family.
+
+Often, my father was gone making the world a better place with his brilliant mind, and while I loved my mother, I took her for granted, like the air we breathe. Dad's return was the big event, the thing that made time with him special and precious. 
+
+At every major event in my early life, Dad played some kind of role. When 9/11 happened, he was called to advise in think tanks and write articles to reflect on all the things at play to understand the situation fully, and how to best respond and act. When the war was declared, he protested and helped the students organize. I remember him speaking to my mother about this freshman senator from Illinois who's campaign he thought would be the perfect answer to Bush-era America. I was with him at Obama's inauguration, and we got to speak with the new president for several minutes, though I remember most when he took us out of the VIP area to walk on the streets with the people who'd flooded DC, to feel "the spirit of the people"
+
+"This is where power resides," He said to me then as wandered on a highway normally packed with traffic, shutdown for the sake of the wandering masses celebrating Hope & Change. "In the streets, with the people. This is where true power belongs, and nowhere else. A state is only as good as it ensures a situation like this prevail, and all the people can say, _we_ did this."
+
+I know how much his way with words meant to so many people, only imagine what it was like when that was your father, and you have his DNA, and how are _you_ going to measure up to that?
+
+Which is why there was no question I'd do anything other than what my father had done. 
+
+I remember when Occupy Wall Street was happening, and he went down to convene and speak with the organizers, to speak with Michael Moore, Cornel West, Noam Chomsky,  Slavoj Zizek. Then, when everyone started packing their bags to head home, and he came home, shakign his head, saying "THe Left can't get itself together if it keeps dividing itself over identity politics instead of uniting around class consciousness. 
+
