@@ -14,3 +14,9 @@ The intro might be a little dull? not gripping enough? Maybe we can lace inttere
 
 CLena up and tighten HOri's philosophical arugment on the virtues of reality over fantasy.
 
+
+
+
+
+This is a challenging section, actually, when I put thought into it. let me look at the original agian, in case im maybe over complicating it. 
+
