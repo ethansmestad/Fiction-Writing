@@ -35,5 +35,6 @@
     * [Maya's Play](maya-saves-new-york/brainstorm/mayas-play.md)
 * [The Party](the-party/README.md)
   * [Brainstorming](the-party/brainstorming.md)
+  * [Outline](the-party/outline.md)
   * [Drafting](the-party/drafting.md)
 
