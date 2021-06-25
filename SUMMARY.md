@@ -37,4 +37,7 @@
   * [Brainstorming](the-party/brainstorming.md)
   * [Outline](the-party/outline.md)
   * [Drafting](the-party/drafting.md)
+* [Singularity](singularity/README.md)
+  * [Drafting](singularity/drafting.md)
+  * [Brainstorming](singularity/brainstorming.md)
 
