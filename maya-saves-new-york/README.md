@@ -20,3 +20,5 @@ Yeah, I can see myself taking the time I’m a day to do a first pass, though ma
 
 But I do feel good knowing what’s essential to this story. The way history crashes down and convenes from all sides, screaming doom, peril, and death. I should be careful about what I actualize in the world, I did already cause a disaster at Notre Dame.
 
+6/7/21-- Alicia Keyes is the Patron Saint of New YOrk. Maya is in love with her. alicia Keyes will factor into this.
+
