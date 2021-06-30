@@ -44,3 +44,7 @@ Maya? Yeah, Maya should probably be the fall project. Once I get full first draf
 
 
 
+6/30/21 FIgured it out! It's definitely hard to get shit in gear when I'm working in the store, but that's no one's fault but my own. I can still find the focus. And what am I trying to focus on? Writing, but in lieu of that, more of the groundwork of a battle plan in terms of my career. There's the website to build and re-make, something that fits my style and aesthetic, once such a thing is established. Truly, the bottom line is getting work read and submitted. I should find a least a few suitable publications for each of the stories I'm working on. I could use some time of quiet and relax to just get away and spend time with the stories. Chimera, Singularity, Taru, The Party,
+
+
+
