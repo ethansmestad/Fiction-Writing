@@ -56,5 +56,7 @@ After  that? I think I want to try singularity. It's actually a pretty sweet ide
 
 I wonder also about what new story ides I might get. THere are obviously still many thigns I want to express and ideate that I haven't figured out the proper form of yet, then there's also just workign mroe from improvisation. But BEfore I move into that realm I'd go back into revision and workshopping the other stories. And then, at some point, I'd got to move into drafting  Maya Saves New York, just giving a full pass on it, to come back to and revise later. Oh yeah, and the party. All short stories drafted, some revised, then Maya drafted, then the others revised, maybe some new ideas in there, then Maya revised again. It feels good to imagine all these stories being published a year from now. I think that's a reasonable and attainable goal. I think once I have some thing published, I should query and agent, and look to shop Maya around, or a collection of my stories and the novella, or even just start working on one of the novel ideas. 
 
+Black Saint & SInner Lady, that I'm also excited about. It might be a novella. I don't quite know, btu it's something I feel like I need to feel out, all the way to its end, it just means somethign to me. I'll let the story dictate what it should become. It's gonna be about this man, who's looked at someone who's not a full person, even though he is a very full person, an overflowing person.
+
 
 
