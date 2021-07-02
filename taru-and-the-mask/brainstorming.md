@@ -47,3 +47,9 @@ This is the story structure for reference ^^^^^
 
 
 
+"While it might be true that it has never before happened in all of human history that people have been able live together in a sustained way without abusing and murdering eah other and creating heirarchy, I still don't believe this is grounds to believe that it's imposible to imagine this no longer being that case, that the history means it's not worth the effort."
+
+
+
+
+
