@@ -3,6 +3,7 @@
 * [Summer Projects '21 Brainstorm](README.md)
 * [My Alien Utopia](my-alien-utopia.md)
 * [Taru & The Mask](taru-and-the-mask/README.md)
+  * [Oliver's Memoir](taru-and-the-mask/olivers-memoir-1.md)
   * [Draft 5](taru-and-the-mask/draft-5.md)
   * [Draft 4](taru-and-the-mask/draft-4/README.md)
     * [Preamble part.](taru-and-the-mask/draft-4/preamble-part..md)
