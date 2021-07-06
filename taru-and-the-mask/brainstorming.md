@@ -63,9 +63,23 @@ So I need an absolute cap of 30 pages, closer to 20-25 pages, which I believe is
 
 & My goal tomorrow \(sunday\) is to get up by 7:30, have  structured and disciplined morning and get writing by an early hour, and I htink I can get a good draft by midway through the day. 
 
+7/5/21 Since i've been unable to focus, and have actually been pretty busy running the shop, I'll just take this idle time to articulate myself a few of what I"d call the major events that should define Oliver's autobiography, a few scenes. There should be one scene that paints the relationship he had with his father in his youth.
 
+1\) Childhood scene, dad in prime, instilling beliefs in child
 
+2\) Reaction to major world events, 9/11 iraq war, occupy wall street, NSA, Trump.
 
+3\) Meeting people at college.
+
+4\) First allegations don't turn into anything
+
+5\) John describing his frustration with young SJW's, going on a speaking tour, getting protested
+
+6\) Going on a trip with his school friends that show him what people are talking about. 
+
+I feel like John Kerrigan's theoretical career was built on an academic foundation of "Holism" where he fought agians tht speclizaiotn that takes places in a lot fo universities and reformed a lot fo practices in his university. He gave talks that synthesized lots of different disciplines to reach diferent conclusions about issues than specialists were able to. We consulted with think tanks and presidents. HE's someone who thought of himself as a rebellious cultural critic. He was a baby-boomer. He came up in the free love time, watched hsi generation become yuppies, something he always bemoaned and criticized. WHat happened is that he did a few radical thigns when he was younger and wrote some famous book, and on that wave of initial fame, got quickly swept up and talked in to the comfortable life of a prestigious academic, and along with it, lots of sex. Then he got Oliver's mom knocked up, and he took it as an opportunity to settle in a bit. JOhn Kerrigan continued his work and basically became one of those bad dads whose always out doing "important shit" and was a trash husband. ANd basically spent all of Oliver's growing up just criticizing things the USA was doing, but doing nothign else about it. HE did his interdisciplinary work. He's supposed ot be an example of what we looked up to in the baby boomers, what they thought was cool and revolutionary about themselves, and then see how they stumbled through all the terrors of the world and changed nothing. He would be criticized for being someone who was supposed to be an edgy, radical, counter-cultural guy in this day, but as time wore on, he went around repeating his same old trope, but never actually taking any risks because he liked his comfy life, and he had no skin in the game. basically a do nothing critic for the second half of his career, riding one major success from his youth, trying to stay relevant but ultimatley cushy in his heigtened academic career, and of course all this time he's still teaching and peopel say he's great but the rumors are also going around about his actions with young female students. And the chain of events is probably that rumors and allegations are brought up against him, and this causes him to launch on a whole new tirade and line of criticism in his career: analyzing PC culture, SJW's, and of course he's getting strong reaction, so he feels like he's having a lat ein life resurgence, but he's also seeing all his relationship becoming compromised. THe first set of allegations doesnt harm him, but it hasn't stopped word from spreading, and he's going to deliver a talk at a university, and he's being protested against and censored. Just before this Oliver's parents get divorced, which means JOhn is becoming more and more unhinged, leaning into this freedom of self-expression, and basically claiming a form of fatalism that the next generation is screwed unless they learn to return to traditions. ANd as he's reaching a fever pitch of alt-right conversion, that's when a new round of accusations come out, and among those making the accusations are Oliver's own friends.
+
+It's probably something like his father made an advance, and when she refused he called her a slur. In order for it to make sense, it has to be that John probably had a student who sympathized with him, thought he was being set up and cancelled, and he took comfort in her, and then tried to make a move, and she didn't know how to say no.  And so it's not OLiver's friend directly, but it is a girl Oliver knows, and Oliver's friend is the one who confronts him and tells him they're going to report it. Doing so will undoubtedly end his father's tenure at the school. 
 
 
 
