@@ -1,2 +1,0 @@
-# Taru & Mask \(Epic Verse\)
-
