@@ -82,3 +82,7 @@ And so this is a story about one conversation between two people, and imagining 
 
 
 
+7/10/21 -- I should probably get into actually draftign at work more, i stillg et this precious idea about unbroken concentration, which there's some sturth to, but it shouldn't get in the way from understadning that I can begin a story at any time in any way. It's usually just about wanting to find a point of entry, a place from which to begin, because I've foudn that does make a difference. What is my point of entry here? THe place where I begin. The first part is a quiet older woman living a very normal life. 
+
+
+
