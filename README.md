@@ -86,3 +86,9 @@ And so this is a story about one conversation between two people, and imagining 
 
 
 
+7/23 -- On the TBD list:
+
+--Singularity, The Party, Chimera. 
+
+
+
