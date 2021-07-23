@@ -88,7 +88,7 @@ And so this is a story about one conversation between two people, and imagining 
 
 7/23 -- On the TBD list:
 
---Singularity, The Party, Chimera. 
+--Singularity, The Party, Chimera. There are others but I feel myself wanting to refine a certain style and voice for this period. I think I'm interested in doing another sci-fi/polyamory story. I'm also intered in this solar punk I dea i've become aware of, stories within the aesthetics or not utopian futures, but just better ones, situaitons where people deal with hard problems, stories that dont rely on fairy dust and magic, but through very conrete and practical situaitons. But it's one thing at a time. I definitely have some specific things I'm trying to accomplish in writing right now. The bottom line is just to find the time to execute on all these things, one at a time. 
 
 
 

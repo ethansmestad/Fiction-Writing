@@ -39,5 +39,6 @@
   * [Drafting](the-party/drafting.md)
 * [Singularity](singularity/README.md)
   * [Drafting](singularity/drafting.md)
+  * [Draft 1](singularity/draft-1.md)
   * [Brainstorming](singularity/brainstorming.md)
 
