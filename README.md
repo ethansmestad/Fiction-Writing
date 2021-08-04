@@ -102,5 +102,17 @@ Yeah, maybe  it's jsut Joelle the scientist with her own steadfast and stubborn 
 
 
 
+8/3/21
+
+Woo hoo!!!! Finally got through a draft of singularity. It's terrible, but it's going to be so much better! I already know what I'm going for, it's not like I don't know. It'll be about trying things in different ways, figuring out by screwing up how to get closer to what feels right, to make it structurally right, tonally correct, descriptive and evocative without being on the nose and explicit, which I think tends to be my issue. I'l be able to break it downsection by seciton and figure out what each part needs. 
+
+But before that comes writing Chimera, the only thing that doesn't quite exist in any form.
+
+This also has to be something which I at least have some of an orientation towards. And one thing about Singularity, is we have to make sure Jo has a real clear journey, from someone who has dealt with much grief and loss and is working through how to open up to love again in the later part of her life, and making sure it builds appropriately. I think I know what the ingredients to that journey are, I'll have to re-read eventually and see whether it built that successful growth and transformation as a story. 
+
+But really with Chimera I have enough of a premise where I could just see what happens. That's the fun of not having to know before you start. All I'ev figured out is the premise: genetially mutated super kid, under constant surveillance and pressure, everyone wants to know where he's going to go for college. We get the story from the vantage of a few people close to him, all these frame narratives, other sources. The scientist who created him from his parents DNA, his boyfriend, his parents, maybe even his older brother. 
+
+
+
 
 
